@@ -1,4 +1,4 @@
-## Hi there 👋# Hi there, I'm Akhil Cherian 👋
+## Hi there 👋# I'm Akhil Cherian 👋
 
 ## About Me
 
